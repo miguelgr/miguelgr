@@ -4,6 +4,6 @@
 - 🎵 Musical interests: hard/psych/stoner rock, jazz, funk, ambient/jam.
   - [discogs](https://www.discogs.com/user/miguelgr/collection?page=1&limit=100&header=1&layout=big) 
   - [bandcamp](https://bandcamp.com/miguelgr)
-- ⚡ Things I do for fun: skateboarding 🛹 (20+ years), playing bass/guitar 🎸 and cooking 👨‍🍳
+- ⚡ Things I do for fun: skateboarding 🛹, playing bass/guitar 🎸 and cooking 👨‍🍳
 - ❤️ I love rocks 🪨, eating and sleeping 🛌
 
